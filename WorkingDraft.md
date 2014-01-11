@@ -3020,7 +3020,7 @@ Boltac made a little bow, "Thank you."
 
 "DO YOU KNOW WHO I AM?"
 
-"Johnny Hubris?" asked Boltac. Dimsbury just stared. "He's a guy I usedta know, never mind. Look, buddy. And by 'buddy', I mean 'friend.' And by 'friend' I really mean, 'jackass.' You're hocus-pocus is gonna backfire. It always does. So how about you shut up and get on with it already."
+"Johnny Hubris?" asked Boltac. Dimsbury just stared. "He's a guy I usedta know, never mind. Look, buddy. And by 'buddy', I mean 'friend.' And by 'friend' I really mean, 'jackass.' Your hocus-pocus is gonna backfire. It always does. So how about you shut up and get on with it already."
 
 Dimsbury clapped his hands together, and lightning bolts ricocheted around the stone chamber. Everything human in the room hid its face against the terrible noise and rush of superheated air. "I command the forces of nature. I can harness the elemental power that turns the world. And I am supposed to be afraid of your sack of goodies?"
 
@@ -3626,7 +3626,7 @@ Boltac emerged from the darkness and stood over the tiny Flame. He removed the t
 
 Boltac helped Asarah to her feet, and she threw her arms around him and kissed him. It was a kiss no money could buy, and a kiss that Boltac wouldn't have traded for anything in the world.
 
-"You can say whatever you want, Mr. Boltac, but you came back," she said, kissing him on the nose, "You gave up everything you had to save *me*. That how I *know*. And that's what makes you a Hero."
+"You can say whatever you want, Mr. Boltac, but you came back," she said, kissing him on the nose, "You gave up everything you had to save *me*. That's how I *know*. And that's what makes you a Hero."
 
 "A what? Hero? Don't be silly. I'm not a Hero. I'm just a guy trying to... to..." Boltac realized that he wasn't quite sure who he was anymore, and he liked it that way. "Anyway, if you want a Hero, you should talk to the kid. That's his department, after all. Oh, my Gods, the kid!"
 
@@ -3807,7 +3807,7 @@ Affirmative cries rose from the crowd. Yeah! Something should be done!
 
 There was a grumbling in the crowd. Rattick thought Boltac was going to falter. But he saw Boltac look to a balcony high on the keep behind him. There, in the sunlight and clean air, was Asarah, as radiant as spring. She smiled and waved her palms in a motion that said 'keep calm.'
 
-Boltac turned back and smiled at the crowd, armed with new confidence. "So, here's the deal. I have a plan, and f I'm your King, I'll use it. If any of *you* have a plan, well then, you can put your own money in the treasury, face not only the wrath of the most powerful Empire in the Four Kingdoms but also the ire of your fellow citizens... you know, come to think of it, I don't want this after all." In a display of master showmanship, Boltac jumped off the table. "Nah, I'm taking my plan and going home."
+Boltac turned back and smiled at the crowd, armed with new confidence. "So, here's the deal. I have a plan, and if I'm your King, I'll use it. If any of *you* have a plan, well then, you can put your own money in the treasury, face not only the wrath of the most powerful Empire in the Four Kingdoms but also the ire of your fellow citizens... you know, come to think of it, I don't want this after all." In a display of master showmanship, Boltac jumped off the table. "Nah, I'm taking my plan and going home."
 
 "No, no, no!" rose the cries around him. The negotiation successfully concluded; Boltac climbed back onto the table and smiled.
 
